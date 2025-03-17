@@ -1,7 +1,7 @@
-## ⋆.ೃ࿔*:･  vide  /  maduca
+## ⋆.ೃ࿔*:･  vide  
 
 
-hello my name is vide or maduca, i am seventeen, pronouns are he him but close friends can call me she her
+hello my name is vide, i am seventeen, pronouns are he him but close friends can call me she her
 
 > i really like sukugo, yuji, and gojo . i am also autistic. i am brazilian but can speak english
 
