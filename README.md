@@ -7,7 +7,7 @@ hello my name is vide, i am seventeen, pronouns are he him but close friends can
 
 > i am always by the jjk area and also may be afk sometimes but feel free to interact and cuddle i love cuddling
 
-> last time i did an mbti and enneagram test i got esfp 7w8 and also i am a libra 
+> last time i did an mbti and enneagram test i got esfp 7w8 and also i am a libra and also yup... i am a furry
 
 > you can add me on discord if youd like pardon the edgy username  :  incelgojo
 
