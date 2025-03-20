@@ -12,5 +12,7 @@ hello my name is vide, i am seventeen, pronouns are he him but close friends can
 > you can add me on discord if youd like pardon the edgy username  :  incelgojo
 
 > i love you please sign anything on my strawpage or atabook...
+
+i int with pro shitters btw . . . i am not a proshipper myself
 > 
 ![𝓕𝓻𝓮𝓪𝓴𝔂 Kaisen 👅](https://github.com/user-attachments/assets/e357bf8b-0d8b-4617-ac5b-83afe5aa394f)
