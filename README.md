@@ -14,5 +14,6 @@ hello my name is vide, i am seventeen, pronouns are he him but close friends can
 > i love you please sign anything on my strawpage or atabook...
 
 i int with pro shitters btw in case it makes you uncomfortable . . . i am not a proshipper myself
+if you really feel the need to accuse me of anything. stop hiding in the shadows like a pussy and come say it to my face or whatever, add me on discord and deal with it like a real man 
 > 
 ![𝓕𝓻𝓮𝓪𝓴𝔂 Kaisen 👅](https://github.com/user-attachments/assets/e357bf8b-0d8b-4617-ac5b-83afe5aa394f)
